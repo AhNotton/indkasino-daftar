@@ -1,0 +1,2 @@
+# indkasino-daftar
+tidaaaakkkkkk
